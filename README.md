@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Hardyal Singh
+- 👀 I’m interested in Cyber-security
+- 🌱 I’m currently learning at Purdue School of Engineering, B.S. Computer Information Technology with a concentration in Information Security
+- 💞️ I’m looking to collaborate on Projects and just build a network of proffesionals in this field
+- 📫 How to reach me can be very easy by cell at 9543054945, or by email at Hardyalsingh2001@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I lok Basketball, Ping Pong and Traveling
